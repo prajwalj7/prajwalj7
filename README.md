@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 I'M PRAJWAL - PRODUCT DESIGNER :
 Im a UI/UX designer<br>i design Experience.<br>I'm good at figma. <br>Great at UX research - usability testing, user flow, user interview, prototyping and wireframing etc,<br>Fresher! looking to enrich my skills<br>
 
 
